@@ -1,0 +1,1 @@
+let be honest, most of shit I don't understand... like I do understand but can't write on my own... IDK what to do? complete the course first or go to YT and create website with just HTML and CSS.... let's stick to this course until it finishes.
